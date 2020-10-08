@@ -1,1 +1,1 @@
-# Tree-of-Savior-Magnum-Opus-Puzzles
+# Magnum Opus Puzzles
